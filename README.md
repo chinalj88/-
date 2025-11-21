@@ -53,20 +53,19 @@
 
 <a href="https://www.mfsgk.com" target="_blank"><img src="imgs/fanhua.webp" alt="2025最新查档社工库" border="0" style="width:380px;"></a>
 
-社工库账号：[繁花社工库](https://www.shegongku.top/491.html)。
+社工库账号：[繁花社工库](https://t.me/FanHuaSGK_bot?start=FanHua_QQSXFYNJ)。
 
-## 星盾社工库机器人
+## Seed＆社工库机器人
 
 全球社工库2025智能在线查询系统星盾社工库支持分享来获取积分，超强的快递地址查询功能，微信绑定查询、微博绑定查询等，数据收录较全，真实性自行验证。
 
-社工库账号：<a href="https://www.shegongku.top/34.html" target="_blank">@星盾社工库机器人</a>，详情：<a href="https://www.shegongku.top/34.html" target="_blank">星盾社工库机器人</a>。
+社工库账号：[Seed＆社工库机器人](https://t.me/SeedSGKBOT?start=TB6AWHA3O79I)
 
-## 黑盒社工库机器人
+## 𝓚𝓪𝓮𝓻𝓷𝓮𝓽社工库机器人
 
 免费社工库telegram查询工具，手机号社工库/游戏开户/微信号社工库/手机定位社工库，黑盒社工库包含数据量比较全的一个社工库，这里不对社工库返回的数据真实性多做评价，请自行鉴别~
 
-社工库账号：<a href="https://www.shegongku.top/115.html" target="_blank">黑盒社工库</a>，详情：<a href="https://www.shegongku.top/115.html" target="_blank">黑盒社工库-Telegram社工库机器人</a>。
-
+社工库账号：[𝓚𝓪𝓮𝓻𝓷𝓮𝓽](https://t.me/Kaernet_bot?start=lklbg7xto)
 ## 诗人社工库
 
 诗人社工库具有自己独特功能特色，其他社工库不同的是独具联通机主信息查询，还有联通工号查询，目前此社工库运营时间不久，有需要的可以试试。
