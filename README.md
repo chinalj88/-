@@ -18,7 +18,7 @@
 
 <a href="https://www.shegongku.top/1.html" target="_blank"><img src="imgs/暗精灵社工库.png" alt="kali社工库" border="0" style="width:380px;"></a>
 
-社工库账号：[情报局社工库](https://t.me/mfsgk?start=b24183)
+社工库账号：[Kali社工库](https://t.me/mfsgk?start=b24183)
 
 ## 查档王社工库
 
