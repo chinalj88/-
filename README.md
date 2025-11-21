@@ -18,7 +18,7 @@
 
 <a href="https://www.shegongku.top/1.html" target="_blank"><img src="imgs/暗精灵社工库.png" alt="kali社工库" border="0" style="width:380px;"></a>
 
-社工库账号: <a href="[https://t.me/AJL05_bot?start=7503613403][(https://t.me/mfsgk?start=b24183](https://t.me/mfsgk?start=b24183))" target="_blank">直达链接</a>，开始使用：<a href="[https://www.shegongku.top/1.html](https://t.me/mfsgk?start=b24183)" target="_blank">暗精灵社工库</a>。
+社工库账号：[情报局社工库](https://t.me/mfsgk?start=b24183)
 
 ## 查档王社工库
 
