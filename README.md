@@ -27,19 +27,19 @@
 社工库账号: <a href="https://t.me/chadangwang001bot?start=ODIyMTE5ODU5Mw==" target="_blank">@查档王社工库账号</a>，详情：<a href="https://www.shegongku.top/667.html" target="_blank">查档王社工库</a>。
 
 
-## AI社工库
+## 永旺工库
 
 免费AI社工库也叫爱社工库，知名免费开盒Telegram社工库，数据量大且优质，输出结果信息较为全面，查询永久免费。为保护隐私，查询结果会码去90%的内容，如需解锁须通过扣除学分获得。学分可自助充值（USDT支付），
 更多学分即可解锁其他诸如语言模型之类的功能。账号已更新，首次查询请参考[使用教程](https://www.shegongku.top/43.html)。
 
-社工库账号：<a href="https://www.shegongku.top/43.html" target="_blank">@爱社工库</a>，详情：<a href="https://www.shegongku.top/43.html" target="_blank">@AI社工库</a>。
+社工库账号[永旺社工库](https://t.me/AEON_SGKBOT?start=7R9ZY24Y19GQ99R7)
 
 
-## 咖喱免费社工库
+## Home＆社ユ庫機器ん免费社工库
 
 免费手机号社工库是一个telegram查询机器人，Kali社工库支持抖音号查询个人信息，微信号反查个人信息。
 
-社工库账号: <a href="https://t.me/QingBaoJuXuanwubot?start=ODg=" target="_blank">@咖喱免费社工库</a>，详情：<a href="https://www.shegongku.top/642.html" target="_blank">咖喱免费社工库下载使用</a>。
+社工库账号[Home＆社ユ庫機器ん](https://t.me/HomeSGKBOT?start=o818hxcnk)
 
 ## Sky社工库
 
